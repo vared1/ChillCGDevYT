@@ -2,7 +2,7 @@
 - 👀 I’m interested in Software engineer aka Programing things and coding such
 - 🌱 I’m currently learning Java Programing, collage
 - 💞️ I’m looking to collaborate on Minecraft, EaglercraftX, and Programing for Player/People can Have the Best Technology they could have
-- 📫 How to reach me https://discord.gg/HgxYREDJ4N / Developall10@gmail.com
+- 📫 How to reach me Developall10@gmail.com
 - 😄 Pronouns: he/Him
 - ⚡ Fun fact: I Created CyberSecurity with CISA!
 
