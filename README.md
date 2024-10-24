@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ChillCG
+- 👋 Hi, I’m @vared1
 - 👀 I’m interested in Software engineer aka Programing things and coding such
 - 🌱 I’m currently learning Java Programing, collage
 - 💞️ I’m looking to collaborate on Minecraft, EaglercraftX, and Programing for Player/People can Have the Best Technology they could have
